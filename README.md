@@ -1,16 +1,20 @@
-### Hi there 👋
+###Welcome to my Profile!
 
-<!--
-**ZR-Barcode/ZR-Barcode** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+##Introduction
+Greetings! I am Barcode, a dedicated competitor in the realm of Battlefield 2042, proudly affiliated with Team Zero Point. My expertise lies predominantly in infantry engagements and vehicle tactics, contributing to the team's success in the competitive arena.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+##Team Zero Point
+Team Zero Point stands as a beacon of excellence within the Battlefield community, renowned for its mastery of infantry combat and strategic vehicle utilization.
+
+
+
+##My Journey
+My journey in Battlefield
+
+
+
+##Team History
+Thank you for visiting my profile :)
