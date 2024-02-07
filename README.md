@@ -7,7 +7,7 @@ Greetings! I am Barcode (or better known as lllIIIIIIllII), a dedicated competit
 
 
 ### Team Zero Point
-Team Zero Point was created by a Professional Battlefield Player in the Battlefield 4 Era called EnexQ, he also formed Synergy, which was a fallback team for personal tournaments that were held in the OCE Region of Battlefield. we have participated in a multitude of tournaments and have won several thanks to player such as CasualFarm3r and Zentlle, who are amazing players in the OCE Community.
+Team Zero Point was created by a Professional Battlefield Player in the Battlefield 4 Era called EnexQ, he also formed Synergy, which was a fallback team for personal tournaments that were held in the OCE Region of Battlefield. we have participated in a multitude of tournaments and have won several thanks to EnexQ, who are amazing in the OCE Community.
 
 
 
