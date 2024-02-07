@@ -2,7 +2,7 @@
 
 
 ## Introduction
-Greetings! I am Barcode, a dedicated competitive player in the realm of Battlefield 2042, proudly affiliated with Team Zero Point. My expertise lies mainly in infantry  and vehicle combat, contributing to the team's history, playstyle and tournament history 
+Greetings! I am Barcode (or better known as lllIIIIIIllII), a dedicated competitive player in the realm of Battlefield 2042, proudly affiliated with Team Zero Point. My expertise lies mainly in infantry  and vehicle combat, contributing to the team's history, playstyle and tournament history 
 
 
 
