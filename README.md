@@ -13,7 +13,7 @@ Team Zero Point was created by a Professional Battlefield Player in the Battlefi
 
 
 ### My Journey
-My journey in Battlefield began in 2008 with the release of Bad Company 1, this got me into PC Gaming and enthusiast building, and led me to get good and play games such as BF3 and BF4 with High KD matches and good kill streaks.
+My journey in Battlefield began with the release of Bad Company 1, this got me into PC Gaming and enthusiast building, and led me to get good and play games such as BF3 and BF4 with High KD matches and good kill streaks.
 
 
 
